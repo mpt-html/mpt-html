@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mpt-html
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate nowhere
+- 📫 Don't think about reaching me out
+- 😄 Pronouns: none/of/your/business
+- ⚡ Fun fact: Go away
